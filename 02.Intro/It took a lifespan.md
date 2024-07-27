@@ -1,0 +1,25 @@
+## Somewhere, somewhen
+
+Strappati dalla quiete da un forte bagliore, tre coscienze tornano ad esistere; la prima cosa che sono in grado di vedere è un vetro, attraverso questo poi, appena capaci di mettere a fuoco, delle capsule squadrate dai bordi taglienti; un fischio acuto segnala che hanno ripreso l'udito, a loro dispiacere, finalmente abituatisi ai nuovo stimoli tornano capaci di movimento, per quanto limitato dalle loro gabbie *vetro-metalliche*.
+Improvvisamente con un dolce suono i pannelli frontali delle capsule si aprono e i tre sono liberati; una voce radiofonica annuncia
+"iter disgelo *crio-sarcofagi* completo".
+
+![[crio-sarcofago.png]]
+## Awakening
+
+I tre, svegliatisi, si incontrano al centro della stanza dove cercano di ottenere informazioni su chi siano o perché si trovino lì, per loro sfortuna non hanno memorie, si danno dei nomi, Apollo, Shadow, e Igres, per prima notano una quarta capsula, come una di quelle da cui sono usciti, contenente però un uomo morto assiderato, investigandolo Igres si ferisce la mano per termotrauma data la bassissima temperatura del corpo, nel mentre, Shadow esamina le uscite e Apollo cerca delle scorte, si riuniscono allora per discutere della situazione, la stanza è scarna, tranne per i macchinari che li tenevano in *crio-sonno* e due porte agli estremi della stanza, cercano dapprima di aprirne una utilizzando il terminale vicino la porta, mandando però il sistema in lockdown, vanno poi sulla seconda porta, Shadow per un sentore utilizza una forza innata per sfondare questa, lanciando la lastra di lega metallica dal lato opposto della stanza, anche se dopo un'analisi nota che i cardini che la mantenevano in piedi erano già tutti distrutti.
+La stanza che si para davanti a loro presenta dei corpi umanoidi ma con caratteristiche animalesche, quattro corpi più simili a iene che persone giacciono sul pavimento ed una torretta automatica fuori uso riposa su un lato della stanza; i tre controllano le tasche dei corpi per dell'equipaggiamento e Igres inorridisce gli altri due coprendosi con un'armatura insanguinata di uno dei corpi.
+Apollo allora esamina la torretta-minigun mentre gli altri due salgono la scala che esce dalla stanza, in cima, notano altre due banditi, alle quali lanciano una flashbang, caricandole con le armi prima trovate, una cade, l'altra fugge passando alla prossima stanza, seguono i tre che si trovano di fronte una bandito più grossa delle altre, armata con due spadoni, una sfida per Igres e Shadow, che vengono salvati da un'accetta lanciata da Apollo che abbatte la minaccia, ma prima della fine della colluttazione, Igres spara abbattendo la bandita ferita che stava scappando verso l'orizzonte.
+Igres e Shadow esaminano l'esterno, un ambiente diverso dal Vault in cui si trovavano, un deserto blu cielo, ma con un cielo grigio sabbia, a loro si unisce poi Apollo che stava recuperando la minigun non funzionate di prima. Si lasciano allora la catena montuosa dove era collocato il Vault alle spalle e proseguono nel deserto, arrivando ad un oasi dove giace un veicolo abbandonato da anni, il gruppo lì riposa e Apollo trova qualche componente per sistemare la minigun, la quale però non spara ancora.
+Proseguendo notano altre due iene-bandito nella distanza e non notati decidono di seguirle, arrivano ad un fungo-camino, Shadow, Igres, e Apollo nascosti dietro una duna, le iene, finito il percorso, si girano verso la loro direzione, Shadow e Apollo aspettano in agguato mentre Igres spara, mancando, al punto che le iene li raggiungono portandoli ad un altro scontro, finito il quale Shadow esamina il fungo, trovando su questo delle direzioni incise nel fusto.
+Campo Base FAA <--
+Santuario FAA -->
+
+## Shroomsign
+
+Dirigendosi al campo Faa, i tre iniziano ad essere a corto di acqua al punto che Shadow e Igres soccombono al caldo e alla sete, Apollo nel badare ai due si ritrova svenuto dopo un colpo alle spalle.
+I tre si svegliano in una tenda, ben idratati e con le ferite curate, dove trovano qualche provvista, Igres decide di uscire ma trova una figura sull'uscio, questa è coperta da un mantello e presenta una maschera sul volto, Zortok, un Faa, come dice di chiamarsi; parlando con Zortok i tre ottengono qualche informazione sulla zona, e sulle Cacklemaw, le iene-bandito.
+Il Faa li coinvolge in una spedizione verso il santuario, non ricevendo informazioni da un giorno; arrivati lì a bordo di un verme della sabbia vedono una colossale struttura toroidale, il santuario Faa, sotto cui una dozzina di Cacklemaw sta massacrando i pellegrini, la spedizione interviene.
+Zortok, l'unico Faa rimasto nella schermaglia, offre ai tre di entrare nella cultura Faa data la loro proficienza nel combattere, ma rifiutano, con delle provviste e un passaggio da parte di Zortok si avvicinano alla prossima meta, una città, Bespìr come la chiama Zortok, che li lascia a 2 settimane di distanza, come ultimo ringraziamento offre loro un anello esotico.
+
+![[Zortok e il Verme.png]]
